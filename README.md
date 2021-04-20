@@ -1,0 +1,5 @@
+- Hi, I’m @lianca-cloud
+- I’m interested in learning java script and html.
+- I’m currently learning html.
+- I have learned block code, and python.
+- I am not looking to collaborte on anything, also don't contact me
